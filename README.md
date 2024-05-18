@@ -1,4 +1,4 @@
-- heyy i'm @khushis1ngh, i do engineering stuff...i find bug,i solve in and it the process i create many tho....yet in the end i manage all in a row.
+- heyy i'm @khushis1ngh, i do engineering stuff...get bug,solve it sometime create.....but in the end somehow manage all in a row.
     
 
 <!---
